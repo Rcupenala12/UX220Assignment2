@@ -1,1 +1,3 @@
-###selling candy in school
+### selling candy in school
+
+Selling candies to others in my class can be an easy and enjoyable way to support multiple organizations while also raising money for them. It was a popular way of fundraising it was an activity that's well-liked by people who like sweet foods. my candy sales probably went toward supporting a club, event, or cause at your school. Being involved in these kinds of events can help you develop your fundraising, collaboration, and entrepreneurship abilities. 
